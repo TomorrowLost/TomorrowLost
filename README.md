@@ -1,4 +1,4 @@
-### Hi there 👋
+### I keep looking for tomorrow and finding yesterday.
 
 <!--
 **TomorrowLost/TomorrowLost** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
